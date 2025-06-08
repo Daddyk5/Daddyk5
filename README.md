@@ -24,4 +24,3 @@ He/Him
 
 ⚡ Fun fact:
 I love to explore new technologies and turn complex problems into simple, elegant solutions. When I'm not coding, you can find me hiking, gaming, or expressing my passion for K-pop through singing and dancing!
-
